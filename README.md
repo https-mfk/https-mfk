@@ -1,0 +1,3 @@
+- 👋 Olá, eu sou Milena
+- 👩‍🏫estudo no colégio civico militar Beatriz Biavatti no 1°A do ensino médio no periodo da mãnha
+- falo só português,basico de inglês
